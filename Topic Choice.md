@@ -1,0 +1,1 @@
+For my white paper, I will be demonstrating the horrendous conditions of inner city education to teachers and faculty in other areas. My goal will be to speak to members of successful schools and convince them to partner with the areas in need. 
