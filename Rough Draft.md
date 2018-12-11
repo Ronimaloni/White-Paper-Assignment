@@ -1,1 +1,1 @@
-
+The layout is very intruiging. i like the idea of the side bar quotes, it gives a nice flow to the paper. I also like this topic. I think it is a very good debatable topic that alot of people are interested in. Everyone always has an opinion when it comes to the welfare of children. I like the look and flow of the picture used agian, but I would suggest perhaps changing one or two so its not too redundant. 
